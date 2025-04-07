@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on IA development and all projects about bussines Softwares
 - 📫 How to reach me @_duduzor_ -> Instagram
 - 😄 Pronouns: He/They
-- ⚡ Fun fact: I programin since my 16y old
+- ⚡ Fun fact: I programin since my 17y old
 
 <!---
 EduZornitta/EduZornitta is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
